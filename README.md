@@ -1,1 +1,0 @@
-# dastresi-nobari-1
